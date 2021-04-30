@@ -1,1 +1,1 @@
-God dammit, I hate shit like this.
+These damned brainworms really get to me.
